@@ -15,8 +15,6 @@
 
 - 📫 How to reach me **tanveer13a551@gmail.com**
 
-- 📄 Know about my experiences [CV TBA](CV TBA)
-
 - ⚡ Fun fact **I love to read and go to the gym**
 
 <h3 align="left">Connect with me:</h3>
