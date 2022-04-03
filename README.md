@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **HTML, CSS and JavaScript**
 
-- 👯 I’m looking to collaborate on **with other developer looking to advance their skills**
+- 👯 I’m looking to collaborate on **fun and interesting projects with kind people**
 
 - 🤝 I’m looking for help with **my portfolio to bring it up to scratch!**
 
